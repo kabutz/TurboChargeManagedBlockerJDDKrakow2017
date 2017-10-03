@@ -1,1 +1,0 @@
-# TurboChargeManagedBlockerJDDKrakow2017
